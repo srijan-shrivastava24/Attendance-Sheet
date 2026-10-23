@@ -138,7 +138,7 @@ CC0 1.0 Universal
 
 **Srijan Shrivastava**
 
-- GitHub: [@srijan-shrivastava0](https://github.com/srijan-shrivastava0)
+- GitHub: [@srijan-shrivastava0](https://github.com/srijan-shrivastava24)
 
 ---
 
